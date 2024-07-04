@@ -1,1 +1,1 @@
-Se realizara futuras actualizaciones.
+Se realizaran futuras actualizaciones.
